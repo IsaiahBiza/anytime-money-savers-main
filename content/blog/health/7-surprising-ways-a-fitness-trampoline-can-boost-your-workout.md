@@ -80,7 +80,8 @@ Encouraging Fitness Enthusiasts to Try Trampoline Workouts With these advantages
 * Yes, the low-impact nature of trampoline exercises makes them safe and beneficial for people with joint issues.
 5.	Do I need special equipment for trampoline fitness? 
 * Other than the fitness trampoline itself, no special equipment is required. Comfortable workout attire is recommended.
-### ORDER YOURS TODAY 
+#### ORDER YOUR FITNESS TRAMPOLINE NOW! 
+###### STEP INTO A HEALTHIER LIFESTYLE
 [![BOOGIE BOUNCE TRAMPOLINE](/photos/boogie-bounce-trampoline.png "Team meeting")](https://www.awin1.com/cread.php?s=3316007&v=38676&q=456047&r=1517627)
 
 <TipJar />
